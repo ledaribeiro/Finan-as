@@ -1,2 +1,0 @@
-# Finan-as
-Finanças
